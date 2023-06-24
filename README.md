@@ -1,3 +1,3 @@
 # Defender Source Code
 
-SIKE BITCH YOU THOUGHT XD XD XD LOLOLOL
+U actually thought? Nerd.
